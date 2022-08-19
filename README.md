@@ -1,9 +1,10 @@
 # bollywood
 this is git
-thuis is naveen github star
+this is Naveen from guntur
 
 
-boss 
-basha naveen
-manikan
+boss is basha
+manikan is hero
 this is git file.
+Raj anna is a king of Andhra not Jagan
+
